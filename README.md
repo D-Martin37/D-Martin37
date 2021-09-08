@@ -10,7 +10,8 @@
 - 😄 Pronouns: HE/Him
 - ⚡ Fun fact: I have a street named after me 
 - 
-![giphy (2)](https://user-images.githubusercontent.com/90153573/132429008-95868358-e8c0-478b-91b2-2b2c558bdd6e.gif)
+- ![giphy (2)](https://user-images.githubusercontent.com/90153573/132430844-79012c50-a408-4b77-bbad-d8efaafeced7.gif)
+
 
 
 
