@@ -1,4 +1,4 @@
-# Hi there 👋
+# Hi there, I'm Deon 👋
 
 
 - 🔭 I’m currently working on my **Information Technology Degree** at [rvcc](https://www.raritanval.edu) where I plan to develop the *skills* needed for web development.  
